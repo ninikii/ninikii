@@ -16,10 +16,7 @@
         
           ⎯⎯⎯  𔘓 ⎯⎯⎯
 
-○ㅤ۫ㅤ﹢ㅤㅤdni list
-
-ㅤꔫㅤㅤׄㅤㅤノㅤㅤdni :: basic dni criteria
-
-꒰  ◞  ◟ ꒱⠀⠀⠀⠀𝅄⠀⠀ thin ice :: darkshipper neonazis(depends)
-
-ㅤꔫㅤㅤׄㅤㅤノㅤㅤint :: anyone tbh
+𐂯 𓍢      ***DNI**    _under_    13     ⑅  ୭     ₊
+╋━   (´◞ ✚𓏼 ) ɞ      no  othrr      dni   /srs      ´ཀ`
+   ࣪𓉸    ࣪     ⊹        i block      𝆺𝅥𝆹𝅥   <-   **FREELY**  ︵    ͜𓏴
+    —     𓏴          note : idomt have a typing quirk or anythign, im a fast typer and i do **not** bother correcting myself most of the time, as i assume ppk understand me, ok? ok :
